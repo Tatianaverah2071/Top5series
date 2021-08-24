@@ -9,4 +9,5 @@
 1. 577
 2. Los increibles
 3. Mujer maravilla
-(/image/https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.espinof.com%2Fcriticas%2Fwonder-woman-es-una-maravilla-la-mejor-pelicula-del-actual-universo-dc-critica-sin-spoilers&psig=AOvVaw0aMDb--uvCAqCbtyh0NsNe&ust=1629920589056000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCJijs8K1yvICFQAAAAAdAAAAABAO)
+
+(/image/https://www.google.com/search?q=mujer+maravilla&rlz=1C5CHFA_enCO938CO938&sxsrf=ALeKk00hN1Hexc2pyqjDV0MAAi-cPSRHwA:1629834184015&tbm=isch&source=iu&ictx=1&fir=s-Oksx1IaWFieM%252CDyCt2TBVKo-5IM%252C_&vet=1&usg=AI4_-kTlrJnN19CR9liE_wblO86SXYuqtg&sa=X&ved=2ahUKEwi0s9K8tcryAhV9SjABHcbdAYcQ_h16BAhHEAE#imgrc=I4krNVFAogP6_M)
